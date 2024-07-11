@@ -1,0 +1,6 @@
+![Screenshot 2024-07-11 073921](https://github.com/ambershukla1998/Movie-Recommender-System/assets/175230663/b7768e25-cb75-4e1b-a378-2caf25748637)
+![Screenshot 2024-07-11 073902](https://github.com/ambershukla1998/Movie-Recommender-System/assets/175230663/15c919e7-5b29-4d5a-8aa3-68b562408400)
+![Screenshot 2024-07-11 073222](https://github.com/ambershukla1998/Movie-Recommender-System/assets/175230663/b62f3ed4-d9ed-4824-837e-2997b6ba6067)
+![Screenshot 2024-07-11 073048](https://github.com/ambershukla1998/Movie-Recommender-System/assets/175230663/2c0839c5-8f23-4442-994a-d082f81b98de)
+![Screenshot 2024-![Screenshot 2024-07-11 073759](https://github.com/ambershukla1998/Movie-Recommender-System/assets/175230663/b444e638-c782-465f-8443-a40780c6a080)
+07-11 073423](https://github.com/ambershukla1998/Movie-Recommender-System/assets/175230663/6707eca7-5604-469d-8d42-cda6f3d390fb)
